@@ -1,2 +1,0 @@
-# natan-art
-Natan art
